@@ -1,4 +1,7 @@
 
-![github profile gif - Made with Clipchamp_1755958250386](https://github.com/user-attachments/assets/0d9806d1-f322-4bbc-b832-326eeeee2670)
+![e04182f6094f2764001c1df50b6a2971](https://github.com/user-attachments/assets/b9c101c5-d17f-41ef-926e-ae0dcdb4c6a8)
+![giphy](https://github.com/user-attachments/assets/46719e55-2a9b-473f-a699-fa72caf9aa21)
+
+
 
 
